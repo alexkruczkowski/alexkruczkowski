@@ -1,6 +1,6 @@
 ## Hello :wave:
 
-I'm Alex. A graduate from the Queen's University Commerce program and Manager, Training Strategy @ Bell. 
+I'm Alex. A graduate from the Queen's University Commerce program and Senior Manager, Credit Risk @ Bell. 
 
 ## Projects
 
